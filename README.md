@@ -1,4 +1,4 @@
-# KNOPARE 2D
+# IKEA KNOPARE
 Created by od_1969  
 X/Twitter https://twitter.com/od_1969  
 
